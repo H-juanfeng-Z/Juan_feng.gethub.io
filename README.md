@@ -1,4 +1,3 @@
-# Juan_feng.gethub.io
 ## welcome to my field.
 既然来了，为何不坐下来喝杯茶呢？
 *** 
