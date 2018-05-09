@@ -12,7 +12,7 @@
 
 OI的路还有很长，一切才刚刚开始。Say “hello” to the world！
 
-                                     by 一个正在向dalao蜕变的juruo。
+by 一个正在向dalao蜕变的juruo。
                                      
 
 #### 蜕变历程
